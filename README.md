@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to UI/UX once I get my feet wet in this platform. 
 - 📫 How to reach me ...amberblackcreations@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love nature, so much that once spent 3 months in Northern Ontario treeplanting and lived in a tent. It snowed the first couple of weeks and I still have the blackfly bite scars to prove it.
+- ⚡ Fun fact: I love nature, so much that I once spent 3 months in Northern Ontario treeplanting and lived in a tent. It snowed the first couple of weeks and I still have the blackfly bite scars to prove it.
 
 <!---
 AmberBlack76/AmberBlack76 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
